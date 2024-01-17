@@ -1,2 +1,1 @@
 Jasman Deol
-18
